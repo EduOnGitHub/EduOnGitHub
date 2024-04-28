@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing :D
 - 📫 How to reach me very much fr
 - 😄 Pronouns: normal fucking pronouns
-- ⚡ Fun fact: im a graffiti maker, programmer, gamer, car and bike lover, and motocross rider
+- ⚡ Fun fact: im a graffiti maker, programmer, gamer, car and bike lover, and motocross rider //yeah im fucking dope and iff you say i aint fuck you
 
 <!---
 EduOnGitHub/EduOnGitHub is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
